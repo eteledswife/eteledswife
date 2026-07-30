@@ -6,7 +6,7 @@
  <p align="center">
    <br><img width="20" height="20" alt="xlfj7d" src="https://github.com/user-attachments/assets/40a340cb-5649-43b0-9bdf-ff0a819c56c7" />   ‎𓏼ᣟᣟᣟ݁ᣟ   call me sarah
    <br>꒰ׁׅ⠀‎  she/her,  c+h yes ♡
-   <br>legal ('07)  locat. bakery
+   <br>text text text text 
 <br> <br>
 
    
